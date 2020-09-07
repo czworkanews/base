@@ -1,0 +1,1 @@
+Dodaj tutaj nowe zdjęcie!
